@@ -1,0 +1,2 @@
+# LNV_Idea_Pad_5_2in1_GDN_728X90_AMD
+LNV_Idea_Pad_5_2in1_GDN_728X90_AMD
